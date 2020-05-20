@@ -24,3 +24,17 @@ https://www.masterguitarists.com/lesson-12
 - C# maj 7 other voicing
 
 2. Pentatonic CAGED
+
+
+## SONGS
+
+- Fly me to the moon
+- kimetso no yaiba 2 songs
+- BOOMx2
+- Seventh
+- Beat it
+- when i met you
+- till there was you
+- Billy Jeans
+- More than words
+- 
